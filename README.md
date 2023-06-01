@@ -1,0 +1,1 @@
+# apk_gudang karena perkembangan teknologi internet begitu cepat,anda pun harus peradaptasi dengan menciptakan kehadiran bisnis secara online.nah,dengan membuat website,anda bisa membentuk branding website bisnis agar para pengguna dan calon konsumen menyadari keberadaan bisnis anda di internet.
